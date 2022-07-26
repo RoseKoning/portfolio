@@ -1,1 +1,0 @@
-Here's where the staff setup their workspaces.
